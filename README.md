@@ -1,6 +1,6 @@
-## 𝓘lluga 𖹭 NIGHTINGALE !  ۶ৎ
+## flins 𖹭  lightkeeper .  ۶ৎ
 
-<img width="735" height="490" alt="image" src="https://github.com/user-attachments/assets/66fded6e-e146-452c-97e7-b9c611bd4809" />    
+  <img width="360" height="202" alt="az8so4" src="https://github.com/user-attachments/assets/19f9c077-2f7f-4c39-b851-15ca8f41e1ab" />
 
 
- https://lanterngale.straw.page ㅤㅤㅤㅤㅤㅤㅤㅤㅤ    w2i  freely   ㅤㅤㅤㅤㅤㅤㅤㅤc + h any encouraged ! 
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ    w2i  freely   ㅤㅤㅤㅤㅤㅤㅤㅤc + h any encouraged ! 
