@@ -1,6 +1,6 @@
-## flins 𖹭  lightkeeper .  ۶ৎ
+## illuga  𖹭  nightingale .  ۶ৎ
 
-  <img width="360" height="202" alt="az8so4" src="https://github.com/user-attachments/assets/19f9c077-2f7f-4c39-b851-15ca8f41e1ab" />
+  <img width="360" height="266" alt="az90tu" src="https://github.com/user-attachments/assets/0f09e820-80b6-430c-80fb-817bf26dd067" />
 
 
   ㅤㅤ  w2i  freely   ㅤㅤㅤㅤㅤㅤㅤㅤc + h enc
